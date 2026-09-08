@@ -18,7 +18,7 @@ Parent. When I am deciding whether to spend hundreds of dollars on another camp 
 Athlete. When recruiting piles up on top of school, club, and training, I want to stay consistent with the coaches I have already contacted, so I can tell whether any of this is working instead of going quiet for weeks.
 
 3. User Profiles
-4. 
+
 Profile A — The Parent (my mother)
 Pays for camps, showcases, travel, film; never bought a recruiting service [K]
 Hiring for: evidence a program is interested, before committing money [K]
